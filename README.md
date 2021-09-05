@@ -1,1 +1,1 @@
-Official Server is offline
+Official Server is online
