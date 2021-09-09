@@ -1,1 +1,1 @@
-Official Server is opeing soon
+Official Server is online
